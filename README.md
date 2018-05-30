@@ -1,3 +1,3 @@
 # Neivacon
-Ganhar a Vida
-Hola a todos  Ninguem sabe tudo ao ponto de nada ter que aprender e ninguem é tão burro que nada tenha para ensinar. A vida da muitas voltas e numa dessas todos temos algo que apreender e algo para ensinar. É a escola da vida
+Hello everyone
+No one knows everything to the point of nothing to learn and nobody is so dumb that nothing has to teach. The life of the turns and the numbers have something they take and something to teach. It's a school of life.
